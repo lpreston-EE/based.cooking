@@ -17,8 +17,8 @@ This recipe contains instructions for sourdough starter needed for all sourdough
 
 ## Directions
 
-1. Day 1: mix 80g of water to 50g of flour and put a cover on the container loosely. Store somewhere warm.
-2. Day 2: the starter should be a bit bubbly. Feed the starter with 80g of water and 50g of flour and store again with loosely covered. If the starter doesn't have bubbles yet, wait another day.
+1. Day 1: mix 80g (3/8 of a cup) of water to 50g (7/16 of a cup) of flour and put a cover on the container loosely. Store somewhere warm.
+2. Day 2: the starter should be a bit bubbly. Feed the starter with 80g (3/8 of a cup) of water and 50g (7/16 of a cup) of flour and store again with it loosely covered. If the starter doesn't have bubbles yet, wait another day.
 3. Day 3-4: repeat the feeding process
 4. You can now use the starter for baking sourdough bread. Remember to not use all the starter at once and feed the remaining starter to always have it available.
 5. Storing the starter: store the starter in a closed container or jar in the fridge. The starter will survive almost indefinitely. After some time a vinegarish liquid forms on top of the starter. Don't be afraid of this, it is there to protect the starter from microbes. It can be poured away when you use the starter next time.
